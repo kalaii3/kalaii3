@@ -1,4 +1,2 @@
 # effective-invention
-Just a about
-
-Kalai
+FOR A COLLEGE PURPOSE
